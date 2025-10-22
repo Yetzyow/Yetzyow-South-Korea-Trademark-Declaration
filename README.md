@@ -1,6 +1,6 @@
 # Trademark Declaration: Yetzyow  
 **Timestamp:** October 22, 2025  
-**Jurisdiction:** Republic of Korea  
+**Jurisdiction:** Republic of Korea  (South Korea)
 **Declarant:** Yetzyow (creative and professional alias)
 
 ---
