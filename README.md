@@ -1,0 +1,1 @@
+# Yetzyow-South-Korea-Trademark-Declaration
